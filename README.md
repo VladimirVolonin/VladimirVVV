@@ -1,1 +1,1 @@
-https://VladimirVolonin.github.io/VladimirVVV/cv
+https://VladimirVolonin.github.io/RS_School/VladimirVVV/
