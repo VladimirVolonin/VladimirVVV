@@ -1,1 +1,1 @@
-https://VladimirVolonin.github.io/VladimirVVV-cv/cv
+https://VladimirVolonin.github.io/VladimirVVV/cv
